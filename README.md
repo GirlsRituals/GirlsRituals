@@ -4,4 +4,4 @@ $\color{#8FD100}{\mathbf{please\ read\ my\ strawpage\ or\ sign\ my\ atabook!\ ty
 
 $\color{#8FD100}{\mathbf{\ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ ↓\ ↓\ ↓\ ↓}}$
 
-<img src="https://i.imgur.com/hQEUOUI.png" width="330"> 
+<img src="https://i.imgur.com/hQEUOUI.png" width="310"> 
