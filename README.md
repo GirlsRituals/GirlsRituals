@@ -4,4 +4,4 @@ $\color{#8FD100}{\mathbf{please\ read\ my\ strawpage\ or\ sign\ my\ atabook!\ ty
 
 $\color{#8FD100}{\mathbf{\ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ \ ↓\ ↓\ ↓\ ↓}}$
 
-<img src="https://i.imgur.com/hQEUOUI.png" width="310"> 
+<a href="https://mavrogatphobia.straw.page/"><img src="https://i.imgur.com/hQEUOUI.png" width="310"></a>
